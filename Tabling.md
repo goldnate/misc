@@ -23,3 +23,7 @@ It can be difficult and nerve-racking to engage strangers with your politics. Th
 #### How to not bother people
 
 Look at their eyes. You can sense whether they are guarded, or lost in thought or conversation, or open to engagement.
+
+#### Confidence in our politics
+
+People who disagree will disagree. Some may be moved, but if you don't try to engage them, they never will. Learn when someone is just wasting your time and be very honest in saying goodbye to those people, "talking with you is interesting, but I'm here to meet new people. Maybe we'll meet again."
